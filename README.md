@@ -1,0 +1,1 @@
+# resenha_scrum_intel
